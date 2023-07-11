@@ -1,4 +1,4 @@
-# bindadarsh7.github.io
+# Adarsh Bind
 Adarsh Bind
 +918112968223 bindaadarsh@gmail.com| LinkedIn Profile
 ### Summary:
